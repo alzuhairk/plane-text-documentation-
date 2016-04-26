@@ -1,2 +1,2 @@
 # plane-text-documentation-
-# This file is for plane text documentation
+# This repository is for plane text documentation
