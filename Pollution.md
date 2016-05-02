@@ -1,4 +1,7 @@
 Written by Khalid Alzuhair and edited by Colin Gunningham
+http://www.worldwildlife.org/threats/pollution
+https://en.wikipedia.org/wiki/Pollution
+I am going to use the two links above to do my research and use the information I learn to write my paper
 
 Conclusion
 
