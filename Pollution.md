@@ -4,6 +4,8 @@ http://www.worldwildlife.org/threats/pollution
 
 https://en.wikipedia.org/wiki/Pollution
 
+http://www.conserve-energy-future.com/PollutionTypes.php
+
 I am going to use the two links above to do my research and use the information I learn to write my paper
 
 
